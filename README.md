@@ -9,7 +9,7 @@
 # Tẩm liệm (hay còn gọi là khâm liệm) là nghi thức chuẩn bị và đặt thi hài người đã mất vào quan tài, sau khi đã thực hiện các bước vệ sinh, thay quần áo, gói bọc thi thể và cúng tế theo phong tục. Đây là một nghi lễ quan trọng, đánh dấu bước chuyển tiếp giữa lúc người mất còn ở trong nhà và khi được đưa đi an táng.
 
 # 
-
+Xem thêm: https://maitanggiangtho.vn/tam-liem-la-gi/
 # Tẩm liệm không chỉ đơn thuần là hành động bảo quản thi hài, mà còn mang đậm ý nghĩa tâm linh. Trong văn hóa Việt, đây được xem là cách thể hiện sự chu toàn cuối cùng của gia đình đối với người đã khuất, đồng thời cầu mong linh hồn họ được siêu thoát thanh thản.
 
 # 
